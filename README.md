@@ -1,7 +1,7 @@
 # LeGCD-a-rendre
 Salut la guilde :)
 
-vive les saucisses et la bretagne libre
+vive les saucisses et la bretagne libre et les chocolatines
 
 Le Mont Saint-Michel est normand!!!
 
